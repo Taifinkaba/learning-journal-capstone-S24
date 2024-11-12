@@ -1,4 +1,4 @@
-# learning-journal-capstone-f23
+# learning-journal-capstone-S24
 
 ## My Learning Accomplishments & Resources:
 
